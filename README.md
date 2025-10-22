@@ -21,7 +21,7 @@ We do not sell your personal information. We may share information with service 
 You may update or delete your information in the app settings. You may opt out of location sharing at any time.
 
 ## Contact Us
-If you have questions about this Privacy Policy, contact us at support@flareapp.com.
+If you have questions about this Privacy Policy, contact us at sava.stosic3@gmail.com.
 
 ## Updates
 We may update this policy. Changes will be posted on this page.
